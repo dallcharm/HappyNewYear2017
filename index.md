@@ -1,21 +1,21 @@
 ## Feliz año nuevo !!!
 
-<center>Me tarde un poquito en empezar a escribir, una habilidad que deberia de mejorar para el proximo año :P.
+<center>Me tarde un poquito en empezar a escribir, una habilidad que deberia de mejorar para el proximo año :P. </center>
 
-Tambien me hubiera gustado haberla escrito en papel, pero ni modo hehe.
+ <center>Tambien me hubiera gustado haberla escrito en papel, pero ni modo hehe. </center>
 
-Aunque el 2016 se ha esfumado, recordare siempre que fue el año en el que te conoci.
+ <center>Aunque el 2016 se ha esfumado, recordare siempre que fue el año en el que te conoci. </center>
 
-Quiero desearte lo mejor para ti en el 2017, aventuras, risas, aprendizajes, experiencias, amor <3. 
+<center>Quiero desearte lo mejor para ti en el 2017, aventuras, risas, aprendizajes, experiencias, amor <3.  </center>
 
-GRACIAS por dejarme compartir tu vida conmigo, te amo con todo mi corazon !
+<center>GRACIAS por dejarme compartir tu vida conmigo, te amo con todo mi corazon ! </center>
 
-Ya muero por verte el lunes.
+<center>Ya muero por verte el lunes. </center>
 
-Siempre tuya,
+<center>Siempre tuya, </center>
 
-Mariana
+<center>Mariana </center>
 
 
 
-(Perdona, me comi los acentos) </center>
+<center>(Perdona, me comi los acentos) </center>
