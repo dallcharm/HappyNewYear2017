@@ -1,6 +1,6 @@
 ## Feliz año nuevo !!!
 
-<center>Me tarde un poquito en empezar a escribir, una habilidad que deberia de mejorar para el proximo año :P.</center>
+<center>Me tarde un poquito en empezar a escribir, una habilidad que deberia de mejorar para el proximo año :P.
 
 Tambien me hubiera gustado haberla escrito en papel, pero ni modo hehe.
 
@@ -18,4 +18,4 @@ Mariana
 
 
 
-(Perdona, me comi los acentos)
+(Perdona, me comi los acentos) </center>
