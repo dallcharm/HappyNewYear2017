@@ -1,8 +1,8 @@
-## Feliz año nuevo !!!
+##  Feliz año nuevo !!!
 
 <center>Me tarde un poquito en empezar a escribir, una habilidad que debería de mejorar para el proximo año :P. </center>
 
- <center>También me hubiera gustado haberla escrito en papel, pero ni modo hehe. </center>
+ <center>También me hubiera gustado escribirla en papel, pero ya es un poco tarde. </center>
 
  <center>Aunque el 2016 se ha esfumado, recordaré siempre que fue el año en el que te conocí. </center>
 
